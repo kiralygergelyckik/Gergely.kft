@@ -1,0 +1,2 @@
+# Gergely.kft
+nem játék
